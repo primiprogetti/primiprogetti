@@ -1,1 +1,1 @@
-Ciao sono marco fra poco sviluppero il progetto
+Ciao sono marco fra poco sviluppero il progetto per il gioco del giro d'italia
